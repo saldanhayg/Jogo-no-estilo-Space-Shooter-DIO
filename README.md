@@ -25,25 +25,7 @@ https://www.linkedin.com/in/gabrielapinheiro129/
   <a target='_blank' href='https://linktr.ee/ygtecnologia'>:computer: Minhas Redes Sociais  </a><br />
 </h4>
 
-## 🚀 Let's code! 🚀
-
-
-🙏 Foco ! Oração ! Ação . Eu sou um filho amado de Deus e Tudo posso naquele que me fortalece . 🙏
 
 
 
-
-
-
-
-
-<a href="https://ibb.co/QpyyddB"><img src="https://i.ibb.co/PFqqQQp/start.png" alt="start" border="0"></a>
-
-
-
-
-
-
-
-
-
+🙏 Jeova Jireh - Deus Provera �
